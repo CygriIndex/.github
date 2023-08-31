@@ -7,8 +7,6 @@ Get more info at [cygri.com](https://cygri.com)
 
 [twitter](https://twitter.com/CygriIndex)
 
-[reddit](https://reddit.com/r/CygriIndex)
-
 [youtube](https://youtube.com/@CygriIndex)
 
 [instagram](https://youtube.com/CygriIndex)
